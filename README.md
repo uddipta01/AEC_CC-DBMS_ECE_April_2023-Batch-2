@@ -9,4 +9,4 @@ https://tinyurl.com/ycyv27me<br>
 https://meet.google.com/ugx-iskt-vbc
 
 **Online Session MS-Teams Link for all sessions:**<br>
-https://tinyurl.com/yetjejhf
+https://tinyurl.com/mk8xebc5
